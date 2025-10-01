@@ -1,1 +1,2 @@
-# advanced-evolution
+# Advanced Evolution
+Ming He est un jeune homme doté d’un extraordinaire pouvoir de type invisible, mais ses pouvoirs se situent au rang le plus médiocre de la poussière blanche. Sur le chemin du retour, une étoile filante désastreuse portant le nom de code « Goddess » perce le ciel. Elle heurte par hasard Ming He, qui roulait sur une route déserte, et s’attache à lui. « Déesse » confère à Ming He un talent puissant et extraordinaire. Avec son talent original et inattendu obtenu de la part « Déesse », Ming He va lentement devenir l’humain le plus fort, tout en découvrant la vérité derrière le pouvoir cosmique !
